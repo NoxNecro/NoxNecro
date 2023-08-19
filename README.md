@@ -1,6 +1,4 @@
-Hi, I'm @NoxNecro!
-
-I own a hentai subreddit and discord and am ~~a burden to society~~ trying to learn to code! 
+Hi, I'm NoxNecro!
 
 <!---
 formatting: https://readme.com
